@@ -1,2 +1,2 @@
-https://drozdovskiii.github.io/Cinema_project/
+https://Drozdovskiii.github.io/Cinema_project/
 
