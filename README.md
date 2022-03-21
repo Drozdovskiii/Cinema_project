@@ -1,2 +1,2 @@
-https://drozdovskiii.github.io/cinema-project/blob/master/index.html
+https://drozdovskiii.github.io/Cinema_project/
 
